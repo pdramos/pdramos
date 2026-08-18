@@ -55,4 +55,4 @@ tinha encontrado antes**. Normalmente a resposta muda o teste, não só o códig
 
 ---
 
-📍 Portugal · ✉️ [ramoseduardoc@gmail.com](mailto:ramoseduardoc@gmail.com)
+📍 Portugal
